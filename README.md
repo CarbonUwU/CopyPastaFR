@@ -2,7 +2,11 @@
 
 ## [autre lien on sait jamais tsais](https://gist.github.com/CarbonUwU/787bef42661d602fc673e3e5f1816db9)
 
+---
 
+fin... c'est... fin c'est sad... fin no troll... t'es ?... t'es sérieux ?... fin... no troll... mais what ??... c'est... fin c'est sad... wtf ?.... t'es sérieux???... no troll.. fin tu n'es qu'une sale merde... fin... ok... ok tu m'as bien cassé les couilles... fin... no troll...
+
+---
 
 Les barrettes 🚬🔥 se ressemblent toutes 😋🤭 comme les mecs 🙎‍♂️🙋 au Japon 🎎😑🇯🇵
 
@@ -355,6 +359,7 @@ j’ai fais 6ans de karaté 🥋avec en parallèle 4ans de boxe anglaise 🥊 ai
 ---
 
 mais hak’allah ton corps tout sec jtenvoi que des middle bien placer dans ton thorax au nom de dieu j’te laisse pour mort tu fais une crise d’épilepsie devant ta daronne wallah elle est choquer jmapproche d’elle elle tape sa plus belle crise cardiaque tel mère tel fils
+
 ---
 
 oe sah mon reuf moi jte ldis depuis ldebut fallait pas fr ca mtn ecoute mon reuf ta parlé g parlé mon darron cta daronne jsp si tu capte quoi fin frero avant dtaper un croc d'dans ta mm pas verifié si sa soeur la pute elle s'appelait karim quoi
