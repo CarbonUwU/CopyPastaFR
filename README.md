@@ -4,6 +4,11 @@
 
 ---
 
+crep☹️fomage☹️manese☹️stek☹️frite☹️poulet piquante☹️harrisa manese☹️pespi☹️voila ici pareil on va bien manger☹️
+
+
+---
+
 fin... c'est... fin c'est sad... fin no troll... t'es ?... t'es sérieux ?... fin... no troll... mais what ??... c'est... fin c'est sad... wtf ?.... t'es sérieux???... no troll.. fin tu n'es qu'une sale merde... fin... ok... ok tu m'as bien cassé les couilles... fin... no troll...
 
 ---
