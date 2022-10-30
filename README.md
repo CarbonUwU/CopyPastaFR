@@ -478,7 +478,11 @@ marqué KCF😂😂😂
 
 Cdi + heures sup + stage de 3eme + chantier + heure de colle + boulot + alternance + labourage + job d'été + salut à tous c'est lasalle + main d'œuvre + intérim + retraite + prime d'ancienneté + conseil de discipline + travail de nuit
 
+---
 
+stop 🛑🙅‍♂️👎 smoking 💨💨 la zaza 🍃🍃🍃 si t’as 😷 la asthma 🤒🤒😩
+
+---
 
 
 
